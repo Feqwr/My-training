@@ -1,2 +1,2 @@
 # My-training
-I decided to post my training in Geek Brains
+I decided to posting my training in Geek Brains
